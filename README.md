@@ -1,2 +1,2 @@
 # 1stONE
-Bro I am too bored.
+No No pls don't
